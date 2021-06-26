@@ -8,3 +8,5 @@
 1DecTzy/1DecTzy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Hi You is Clicked file now your phone is attacking by TVEZ, i hope you have important file for me. 
+Good Luck My Friends.
